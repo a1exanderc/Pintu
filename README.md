@@ -1,1 +1,1 @@
-pi nt u
+pintu
